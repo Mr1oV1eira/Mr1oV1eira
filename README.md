@@ -1,0 +1,7 @@
+- 👋 Hi there , I’m Mario Vieira, from Portugal to the world!!
+- 👀 I’m interested in work with Python, because it's what i'm focus on.
+- 🌱 With the pass of the years i'm have been on solo demand of projects directly to town's hall and stock's stores company.
+- 💞️ I’m flexible to a timetable and i don't have afraid of learning or to give somo idea neither.
+- 📫 How to reach me:
+-         email.: mario.dev1010@gmail.com
+-         Linkedln.: https://www.linkedin.com/in/m%C3%A1rio-vieira-a060a2225
